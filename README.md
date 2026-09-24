@@ -24,3 +24,13 @@ Fingerprint sensor คือ เซนเซอร์สำหรับสแก
 - Working temperature rating: -20C to +50C
 - Working humidy: 40%-85% RH
 - Full Dimensions: 47 x 20 x 21.5mm
+
+ช่องทางติดต่อ:
+ผู้ติดต่อ : ภาธสุ ดวงมาลา 
+ตำแหน่ง : R&D Manager
+Tel : 0641900551
+E-mail : nextsoftware.pp@gmail.com
+Line : https://lin.ee/THH8PAt
+
+บริษัท เน็กซ์ ซอฟต์แวร์ จำกัด 
+ที่อยู่ หมู่บ้าน inizio เลขที่ 888/257 ถนนมะลิวัลย์ ตำบลบ้านทุ่ม อำเภอเมืองขอนแก่น จังหวัดขอนแก่น 40000 เลขที่ผู้เสียภาษี : 0405558003118
