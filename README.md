@@ -26,7 +26,8 @@ Fingerprint sensor คือ เซนเซอร์สำหรับสแก
 - Full Dimensions: 47 x 20 x 21.5mm
 
 ช่องทางติดต่อ:
-ผrlkey=nvqvndrxv7v9yrfmlcgtplmtx่ง : R&D Manager
+ชื่อ : ภาธสุ ดวงมาลา
+ตำแหน่ง : R&D Manager
 Tel : 0641900551
 E-mail : nextsoftware.pp@gmail.com
 Line : https://lin.ee/THH8PAt
